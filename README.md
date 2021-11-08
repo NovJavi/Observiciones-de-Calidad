@@ -1,1 +1,0 @@
-# Observiciones-de-Calidad
